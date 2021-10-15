@@ -15,7 +15,7 @@ Click here 👉 [Google Drive](https://drive.google.com/drive/folders/1addvZRBvP
 ### Special
 
 - **🇨🇳中国大陆**
-  - [蓝奏云](https://naruto-senki-re.lanzous.com/b0a3dddad)
+  - [蓝奏云](https://naruto-senki-re.lanzoui.com/b0a3dddad)(原作者盘)
 
 ## Last of all
 
